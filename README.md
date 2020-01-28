@@ -1,5 +1,5 @@
 # stony-fanfic
-tags: 盾铁,stony,Steve Rogers/Tony Stark,可逆  
+tags: 盾铁,stony,Steve Rogers/Tony Stark,可逆,可能有第三方关系  
 本仓库收录原创盾铁同人文
 
 # 注意
