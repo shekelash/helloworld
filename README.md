@@ -8,6 +8,7 @@ tags: 盾铁,stony,Steve Rogers/Tony Stark,可逆,可能有第三方关系
 # 介绍
 - Earth-26111 Verse：2014年，已出无料，markdown格式  
 - 化龙：2014年  
+- 大卫：2015年  
 - He, Robot：2016年，无料约稿  
 - 探索精神：2017年，合志G文，合志似乎还没出？  
 - 当我们在聊天的时候我们在聊什么：2017年，赠rejo  
