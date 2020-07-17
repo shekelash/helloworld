@@ -4,8 +4,10 @@
 Fandoms: Marvelmarvel 26111
 Relationships: Steve Rogers/Tony StarkWanda Maximoff/Steve Rogers
 Additional Tags: fuck buddy, cyborg, blowie, Steve bottom, Angry Sex, Comfort Sex  
+
 >本文绝大部分时间托尼与史蒂夫都是敌友床伴的肉体关系，没有或无所谓有没有爱情。涉及性伴侣身体残疾与改造、愤怒性爱、安慰性爱的情节，但不含出轨的情节、暗示与构思。  
-请先权衡自己的接受程度，一旦阅读则默认接受以上内容。感谢支持。
+请先权衡自己的接受程度，一旦阅读则默认接受以上内容。感谢支持。  
+
 >本文为2014年创作的无料，为漫画大事件《奥创时代》6-9本的衍生。因故事易引争议本不打算公开。但因最近某些原因还是放上AO3来，再次警告，雷点众多。
 
 <br>
@@ -36,10 +38,10 @@ Additional Tags: fuck buddy, cyborg, blowie, Steve bottom, Angry Sex, Comfort Se
 <br>
 
 # 婚礼  
->NO.1
-Timeline: 2
-Rating: General
-Relationship: Steve Rogers & Tony Stark
+>NO.1  
+Timeline: 2  
+Rating: General  
+Relationship: Steve Rogers & Tony Stark  
 Warning: Fuck Buddy
 
 “准备好了吗？”  
@@ -103,10 +105,10 @@ Warning: Fuck Buddy
 <br>
 
 # 尝试  
->NO.4
-Timeline: 6
-Rating: Explicit
-Relationship: Steve Rogers / Tony Stark
+>NO.4  
+Timeline: 6  
+Rating: Explicit  
+Relationship: Steve Rogers / Tony Stark  
 Warning: Cyborg, Blowie
 
 在这个时刻之前，托尼从没想过自己会如此怀念性爱。  
@@ -143,10 +145,10 @@ Warning: Cyborg, Blowie
 <br>
 
 # 攻防  
->NO.6
-Timeline: 8
-Rating: Mature
-Relationship: Steve Rogers & Tony Stark
+>NO.6  
+Timeline: 8  
+Rating: Mature  
+Relationship: Steve Rogers & Tony Stark  
 Warning: Graphic Depictions Of Violence
 
 托尼等待了一会。通讯屏上跳出美国上校的刚毅面容，他灰头土脸，紧抿嘴唇，额头脸颊挂着彩，看起来很是狼狈。  
@@ -204,10 +206,10 @@ Warning: Graphic Depictions Of Violence
 <br>
 
 # 胜利  
->NO.7
-Timeline: 8
-Rating: Explicit
-Relationship: Steve Rogers / Tony Stark
+>NO.7  
+Timeline: 8  
+Rating: Explicit  
+Relationship: Steve Rogers / Tony Stark  
 Warning: Cyborg, Steve bottom
 
 他们的嘴撞在一起，互相舔舐啃咬。托尼在对方口腔里尝到了硝烟泥土与海水的味道，很像咸鱼干，他不确定，因为他很久没吃过咸鱼干了，他根本很久没有吃过任何东西了，他只需要营养液维持生命，所以很肯定对方只能从他嘴里尝到营养液味。他立即拉回思绪，并告诫自己别想这些煞风景的事。尤其是现在。  
@@ -242,10 +244,10 @@ Warning: Cyborg, Steve bottom
 <br>
 
 # 分裂  
->NO.5
-Timeline: 7
-Rating: Teen And Up
-Relationship: Steve Rogers & Tony Stark
+>NO.5  
+Timeline: 7  
+Rating: Teen And Up  
+Relationship: Steve Rogers & Tony Stark  
 Warning: -
 
 战后的第二年秋天，史蒂夫·罗杰斯在国家英雄纪念集会上再次遇见了托尼·斯塔克。  
@@ -310,10 +312,10 @@ Warning: -
 <br>
 
 # 交涉  
->NO.8
-Timeline: 8
-Rating: Mature
-Relationship: Steve Rogers / Tony Stark
+>NO.8  
+Timeline: 8  
+Rating: Mature  
+Relationship: Steve Rogers / Tony Stark  
 Warning: Cyborg, Angry Sex
 
 史蒂夫把吸血男爵的头按进哈迪逊河畔的泥土里。  
@@ -384,9 +386,9 @@ Warning: Cyborg, Angry Sex
 <br>
 
 # 葬礼  
->Timeline: 3
-Rating: Mature
-Relationship: Steve Rogers / Tony Stark
+>Timeline: 3  
+Rating: Mature  
+Relationship: Steve Rogers / Tony Stark  
 Warning: Cyborg, Comfort Sex
 
 旺达的葬礼正值艳阳天。  
@@ -437,10 +439,10 @@ Warning: Cyborg, Comfort Sex
 <br>
 
 # 审讯  
->NO.9
-Timeline: 8
-Rating: Mature
-Relationship: -
+>NO.9  
+Timeline: 8  
+Rating: Mature  
+Relationship: -  
 Warning: Graphic Depictions Of Violence
 
 斯塔克护卫母舰的审讯室沿用了旧警局的风格，一桌两椅一灯一扇单面玻璃窗，没有摄像头。因为来到这里的人都是超级罪犯，他们的结局已经注定，被投入42号监狱。至于这个房间里到底发生过什么，或许有人会做出猎奇的猜测，却没有人真的在乎。  
@@ -506,10 +508,10 @@ Warning: Graphic Depictions Of Violence
 <br>
 
 # 生命  
->NO.3
-Timeline: 5-7
-Rating: Mature
-Relationship: -
+>NO.3  
+Timeline: 5-7  
+Rating: Mature  
+Relationship: -  
 Warning: Cyborg, Graphic Depictions Of Violence
 
 托尼·斯塔克一生仅有一次祈祷是为了摩根赠与他的伤势。  
@@ -552,10 +554,10 @@ Warning: Cyborg, Graphic Depictions Of Violence
 <br>
 
 # 始终  
->NO.10
-Timeline: 9 & 0
-Rating: Explicit
-Relationship: Steve Rogers / Tony Stark
+>NO.10  
+Timeline: 9 & 0  
+Rating: Explicit  
+Relationship: Steve Rogers / Tony Stark  
 Warning: Cyborg, ?
 
 “每次睡在你的床单上我都在想，难怪人们总是不知餍足地追求更富庶的生活，有了席梦思就再也没人愿意睡床板，有了埃及棉就再也没人愿意睡麻布。”  
@@ -612,7 +614,7 @@ Warning: Cyborg, ?
 
 <br>
 
-# 后记
+# 后记 
 
 ## 关于赛博格。
 我非常喜欢攻壳机动队。包括整个世界观设定与主角，完全赛博格人草薙素子。这个角色全身义体，大脑完全电子化。她总是有个疑问:既然我不是血肉之躯，所有的思维与记忆又以数据形式存储运算，那我有灵魂吗？还是人类吗？  
